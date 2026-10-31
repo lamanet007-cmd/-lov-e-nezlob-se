@@ -1,1 +1,1 @@
-# -lov-e-nezlob-se
+Člověče nezlob se
